@@ -1,1 +1,0 @@
-# ASU-QUB-Hackathon
